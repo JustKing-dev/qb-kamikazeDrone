@@ -12,4 +12,4 @@ To clarify, I took the script and modified it so that everything it touches expl
 https://streamable.com/k9q97c
 
 
-I thank TKN for their prompt cooperation with me ❤️❤️. 
+thank you TKN for their prompt cooperation with me ❤️❤️. 
